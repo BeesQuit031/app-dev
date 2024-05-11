@@ -20,6 +20,6 @@
    
 > These are my most favorite movies and anime series that I mostly watch repeatedly. In Anime Series, I always binge watching the Slam Dunk because of its uniqueness and comedy. In movies, I always binge watching the animated movies Cars because KATCHOWWWWW!!!
 
-![CARS](https://th.bing.com/th/id/OIP.jCeh8ekWwCvOvOJVeYjxtwAAAA?w=474&h=354&rs=1&pid=ImgDetMain)
+![CARS](https://i.pinimg.com/originals/82/67/c4/8267c4556bf6175a4e5946d7b4b1cf02.jpg)
 ![SLAM DUNK](https://wallpaperset.com/w/full/7/d/c/237420.jpg)
  
